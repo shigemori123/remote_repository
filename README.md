@@ -5,3 +5,5 @@
 
 aaahahaaa
 hokanohitoga ijitta
+
+ganbarou!
